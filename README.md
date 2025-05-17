@@ -1,16 +1,32 @@
-## Hi there 👋
+![1000003111](https://github.com/user-attachments/assets/df9213f7-9489-400c-beba-09e3187947ab)
 
-<!--
-**sun-downer/sun-downer** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
-Here are some ideas to get you started:
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+
+
+
+
+
+
+
+<p align="center">cr: @ozologz1 on X, formerly Twitter</code>
+</p>
+
+<p align="center">
+    <code style="color : Orangered">"Ozo, Is that you? LOL, it must be! hope you still get out there and pwn, so fun."</code>
+</p>
+
+
+
+
+
+
+discord: ech0inthesilo
+
+strawgpage ... >> https://decayingvanity.straw.page/
+
+.
+.
+.
+.
+.
