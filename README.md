@@ -11,13 +11,7 @@
 
 
 
-<p align="center">
-    <img width="200" src="![1000004119](https://github.com/user-attachments/assets/8862a74f-c617-4f70-a22b-cdb473aeeb26)"
->
-</p>
-</p>
-
-<p align="center">
+align="center">
     <code style="color : Orangered">You let him go.</code>
 </p>
 
@@ -35,3 +29,6 @@ strawgpage ... >> https://decayingvanity.straw.page/
 .
 .
 .
+
+![1000004119](https://github.com/user-attachments/assets/b3d36840-1313-48f7-8858-69d3d30b75d2)
+
