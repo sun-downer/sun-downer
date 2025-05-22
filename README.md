@@ -11,8 +11,10 @@
 
 
 
-<p align="center">![1000004119](https://github.com/user-attachments/assets/9fa94375-9d4a-4f1c-8459-7bf2cc6d6463)
-</code>
+<p align="center">
+    <img width="200" src="![1000004119](https://github.com/user-attachments/assets/8862a74f-c617-4f70-a22b-cdb473aeeb26)"
+>
+</p>
 </p>
 
 <p align="center">
