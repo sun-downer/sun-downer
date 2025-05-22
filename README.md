@@ -9,10 +9,9 @@
 
 
 
->
-    <code style="color : Orangered">You let him go.</code>
+<p align="center">
+You let him go.
 </p>
-
 
 
 
