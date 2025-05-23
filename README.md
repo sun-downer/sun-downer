@@ -10,7 +10,7 @@
 
 
 <p align="center">
-You let him go.
+you let him go.
 </p>
 
 
