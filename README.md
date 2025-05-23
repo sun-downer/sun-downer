@@ -17,9 +17,13 @@ you let him go.
 
 
 
-discord: ech0inthesilo
 
-strawgpage ... >> https://decayingvanity.straw.page/
+
+<p align="center">
+discord: ech0inthesilo
+https://decayingvanity.straw.page/
+funny fact, i dont play fe2 😢
+</p>
 
 .
 .
