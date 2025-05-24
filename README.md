@@ -1,4 +1,5 @@
-![1000004424](https://github.com/user-attachments/assets/ed90466e-9ad1-4078-a5a3-ffb1eff81b3b)
+![1000004439](https://github.com/user-attachments/assets/1e058454-2198-4b78-9e78-1597788235df)
+
 
 
 
@@ -11,7 +12,7 @@
 
 
 <p align="center">
-heh..someone feed bro.
+i forgot who drew this..anyways credits to them.
 </p>
 
 
