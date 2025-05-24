@@ -20,9 +20,11 @@ you let him go.
 
 
 <p align="center">
-discord: ech0inthesilo
+discord: ech0inthesilo ,
 https://decayingvanity.straw.page/
-  funny fact, i dont play fe2 😢
+</p>
+<p align="center">
+funny fact, i don't play fe2 😢
 </p>
 
 .
