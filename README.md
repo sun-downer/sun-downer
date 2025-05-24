@@ -24,7 +24,7 @@ discord: ech0inthesilo ,
 https://decayingvanity.straw.page/
 </p>
 <p align="center">
-funny fact, i don't play fe2 😢
+funny fact, i don't play fe2 that much but ill try it when im bored
 </p>
 
 .
