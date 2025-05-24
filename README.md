@@ -30,5 +30,6 @@ funny fact, i don't play fe2 that much but ill try it when im bored
 
 
 
-![1000004119](https://github.com/user-attachments/assets/b3d36840-1313-48f7-8858-69d3d30b75d2)
+![1000004441](https://github.com/user-attachments/assets/34e75528-153b-4391-a900-f02f6d80e113)
+
 
