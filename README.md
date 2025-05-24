@@ -1,4 +1,5 @@
-![1000004439](https://github.com/user-attachments/assets/1e058454-2198-4b78-9e78-1597788235df)
+![1000004455](https://github.com/user-attachments/assets/39f9e41e-692c-4821-a7e9-a9c791bb79de)
+
 
 
 
@@ -12,7 +13,7 @@
 
 
 <p align="center">
-i forgot who drew this..anyways credits to them.
+i forgot who drew this..anyways credits to them. toohoo, sorclock.
 </p>
 
 
