@@ -27,11 +27,7 @@ https://decayingvanity.straw.page/
 funny fact, i don't play fe2 that much but ill try it when im bored
 </p>
 
-.
-.
-.
-.
-.
+
 
 ![1000004119](https://github.com/user-attachments/assets/b3d36840-1313-48f7-8858-69d3d30b75d2)
 
