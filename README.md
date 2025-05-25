@@ -15,7 +15,7 @@
 
 
 <p align="center">
-discord: ech0inthesilo ,
+discord: _mindscythe ,
 https://decayingvanity.straw.page/
 </p>
 
