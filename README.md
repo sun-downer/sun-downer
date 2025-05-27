@@ -2,7 +2,8 @@
 “ 𝚂𝚙𝚒𝚕𝚕𝚎𝚍 𝚒𝚗𝚜𝚒𝚍𝚎 𝚕𝚒𝚔𝚎 𝚜𝚑𝚊𝚍𝚘𝚠𝚜 𝚞𝚗𝚑𝚒𝚗𝚐𝚎𝚍. ”
 </p>
 
-![1000004675](https://github.com/user-attachments/assets/7c953d83-4084-43bb-a808-9991445298e9)
+![image](https://github.com/user-attachments/assets/73af7cde-5749-491f-a39f-836c332a341a)
+
 
 
 
