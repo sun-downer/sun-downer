@@ -5,7 +5,7 @@
 
 
 <p align="center">
-[STRAWPAGE] (https://glowingstars.straw.page/)
+[STRAWPAGE](https://glowingstars.straw.page/)
 </p>
 <p align="center">
 [ATABOOK] (https://ritualfrenzy.atabook.org/)
