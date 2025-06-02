@@ -1,4 +1,9 @@
-![1000004568](https://github.com/user-attachments/assets/fa026def-edde-438a-ba93-a4709ecc7edd)
+<p align="center">
+“ 𝙼𝚊𝚢𝚋𝚎 𝚊 𝚜𝚘𝚞𝚕 𝚕𝚒𝚔𝚎 𝚖𝚎 𝚍𝚘𝚎𝚜𝚗'𝚝 𝚎𝚟𝚎𝚗 𝚗𝚎𝚎𝚍 𝚝𝚘 𝚔𝚗𝚘𝚠. ”
+</p>
+
+![1000005551](https://github.com/user-attachments/assets/63e6befa-827d-41cd-9c18-dc21de6befea)
+
 
 
 
@@ -12,5 +17,8 @@ https://ritualfrenzy.atabook.org/
 </p>
 
 <p align="center">
-Roblox : @bxmmer_land „ Discord : _mindscythe
+@bxmmer_land on roblox.
+</p>
+<p align="center">
+_mindscythe on discord.
 </p>
