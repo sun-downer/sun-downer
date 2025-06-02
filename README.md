@@ -5,10 +5,10 @@
 
 
 <p align="center">
-https://glowingstars.straw.page/
+[STRAWPAGE](https://glowingstars.straw.page/)
 </p>
 <p align="center">
-https://ritualfrenzy.atabook.org/
+[ATABOOK](https://ritualfrenzy.atabook.org/)
 </p>
 
 ![1000004619](https://github.com/user-attachments/assets/30b09b79-223f-49f9-b932-13222a29053d)
