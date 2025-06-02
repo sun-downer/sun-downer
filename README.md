@@ -11,7 +11,6 @@ https://glowingstars.straw.page/
 https://ritualfrenzy.atabook.org/
 </p>
 
-![1000004619](https://github.com/user-attachments/assets/30b09b79-223f-49f9-b932-13222a29053d)
 <p align="center">
 Roblox : @bxmmer_land „ Discord : _mindscythe
 </p>
