@@ -2,9 +2,6 @@
 “ 𝙼𝚊𝚢𝚋𝚎 𝚊 𝚜𝚘𝚞𝚕 𝚕𝚒𝚔𝚎 𝚖𝚎 𝚍𝚘𝚎𝚜𝚗'𝚝 𝚎𝚟𝚎𝚗 𝚗𝚎𝚎𝚍 𝚝𝚘 𝚔𝚗𝚘𝚠. ”
 </p>
 
-<p align="center">
-  <img width="460" height="300" src="https://github.com/user-attachments/assets/3ae110a5-b8dd-4198-8762-fd2dc519a21d)/460/300">
-</p>
 
 
 
