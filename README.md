@@ -12,7 +12,7 @@
 
 
 <p align="center">
-https://glowingstars.straw.page/
+[STRAWPAGE](https://glowingstars.straw.page/)
 </p>
 <p align="center">
 https://ritualfrenzy.atabook.org/
