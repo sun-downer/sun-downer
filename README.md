@@ -2,7 +2,7 @@
 “ 𝙵𝙾𝚁 𝙸 𝙰𝙼 𝚃𝙷𝙴 𝚂𝙲𝙾𝚄𝚁𝙶𝙴 𝙾𝙵 𝙴𝚅𝙴𝚁𝚈𝙾𝙽𝙴 𝚃𝙷𝙰𝚃 𝚈𝙾𝚄 𝙲𝙰𝙽𝙽𝙾𝚃 𝙷𝙸𝙳𝙴. ”
 </p>
 <p align="center">
-  <img src="!https://github.com/user-attachments/assets/45b67d41-994b-4e44-a709-3dd788b97cdd" alt="animated" />
+  <img src="!https://github.com/user-attachments/assets/45b67d41-994b-4e44-a709-3dd788b97cdd"/>
 </p>
 
 
