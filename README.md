@@ -1,14 +1,9 @@
 <p align="center">
-“ 𝙵𝙾𝚁 𝙸 𝙰𝙼 𝚃𝙷𝙴 𝚂𝙲𝙾𝚄𝚁𝙶𝙴 𝙾𝙵 𝙴𝚅𝙴𝚁𝚈𝙾𝙽𝙴 𝚃𝙷𝙰𝚃 𝚈𝙾𝚄 𝙲𝙰𝙽𝙽𝙾𝚃 𝙷𝙸𝙳𝙴. ”
+“ 𝚊 𝚌𝚊𝚕𝚖 𝚋𝚛𝚎𝚎𝚣𝚎 𝚏𝚘𝚛 𝚝𝚠𝚘 𝚌𝚑𝚊𝚘𝚝𝚒𝚌 𝚐𝚛𝚎𝚖𝚕𝚒𝚗𝚜. ”
 <p align="center">
-  <img src="https://github.com/user-attachments/assets/77ccc89b-8a0d-4951-acbc-ac77e31102b4"/>
+  <img src="https://x.com/sodaydiv/status/1799967661864133003/photo/1"/>
 </p>
-
-<p align="center">
-  <img width="536" height="92" src="https://github.com/user-attachments/assets/39cfaca3-8353-4eda-bba6-5de83bd66e2b">
-</p>
-
-
+cr: @sodaydiv on X and tiktok.
 
 
 <p align="center">
