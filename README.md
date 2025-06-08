@@ -1,8 +1,8 @@
 <p align="center">
 “ 𝚊 𝚌𝚊𝚕𝚖 𝚋𝚛𝚎𝚎𝚣𝚎 𝚏𝚘𝚛 𝚝𝚠𝚘 𝚌𝚑𝚊𝚘𝚝𝚒𝚌 𝚐𝚛𝚎𝚖𝚕𝚒𝚗𝚜. ”
-<p align="center">
-  <img width="1200" height="402" src="https://x.com/sodaydiv/status/1799967661864133003/photo/1">
-</p>
+
+![1000006620](https://github.com/user-attachments/assets/c1696c4c-a4b3-4567-b8ef-ea7816c854cc)
+
 cr: @sodaydiv on X and tiktok.
 
 
