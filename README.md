@@ -22,5 +22,5 @@ https://ritualfrenzy.atabook.org/
 @bxmmer_land on roblox.
 </p>
 <p align="center">
-_mindscythe on discord.
+krewified on discord.
 </p>
