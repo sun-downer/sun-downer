@@ -1,9 +1,5 @@
-<p align="center">
-“ 𝚃𝚑𝚎 𝚏𝚎𝚎𝚕𝚒𝚗𝚐 𝚗𝚎𝚟𝚎𝚛 𝚐𝚎𝚝𝚜 𝚘𝚕𝚍. ”
+![1000006927](https://github.com/user-attachments/assets/6f231ad9-5470-4b2b-bb40-1ebb133ece58)
 
-![1000006620](https://github.com/user-attachments/assets/c1696c4c-a4b3-4567-b8ef-ea7816c854cc)
-
-𝚌𝚛: 𝚜𝚘𝚍𝚊𝚢𝚍𝚒𝚟 𝚘𝚗 𝚇 𝚊𝚗𝚍 𝚝𝚒𝚔𝚝𝚘𝚔.
 
 <p align="center">
 https://glowingstars.straw.page/
