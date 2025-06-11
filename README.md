@@ -18,6 +18,6 @@ https://ritualfrenzy.atabook.org/
 krewified on discord.
 </p>
 
-![1000007168](https://github.com/user-attachments/assets/1b2bb802-9920-4445-aa41-c0b3a22d3b94) ![17496569962777491249911395295611](https://github.com/user-attachments/assets/9c88f8a1-72e0-4fb5-a77b-22a332e6d875) ![17496570153675491792455731018131](https://github.com/user-attachments/assets/1f58a015-6608-48f3-a4c8-022c02757b61)
+![1000007168](https://github.com/user-attachments/assets/5bfd6870-8c30-484c-9a14-ccbe12d6480c)
 
 
