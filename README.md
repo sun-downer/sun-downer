@@ -1,5 +1,8 @@
-![1000007164](https://github.com/user-attachments/assets/80db56ec-b073-4858-a6d8-d1d7b66a6751)
-cr: @shiftedrella on tumblr
+<p align="center">
+“ あ、じゃあ倒します . ”
+</p>
+![1000007438](https://github.com/user-attachments/assets/5fede890-f3d3-48fc-a4f2-ebac6165a219)
+
 
 
 
