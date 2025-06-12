@@ -1,7 +1,8 @@
 <p align="center">
 “ あ、じゃあ倒します . ”
 </p>
-![1000007438](https://github.com/user-attachments/assets/5fede890-f3d3-48fc-a4f2-ebac6165a219)
+
+![1000007438](https://github.com/user-attachments/assets/e5b76e82-670a-4e8e-bfae-e388bf2d51c6)
 
 
 
