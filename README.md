@@ -21,7 +21,7 @@ https://ritualfrenzy.atabook.org/
 @bxmmer_land on roblox.
 </p>
 <p align="center">
-krewified on discord.
+basketoftulips on discord.
 </p>
 
 
