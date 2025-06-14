@@ -1,8 +1,9 @@
 <p align="center">
-“ あ、じゃあ倒します . ”
+cr: rwottenbunnie on tumblr
 </p>
 
-![1000007441](https://github.com/user-attachments/assets/e9114ef3-f316-40aa-94e8-8862e32a1856)
+![17499230362407857226557748388103](https://github.com/user-attachments/assets/271ba616-edae-4290-8994-97a968db1ab4)
+
 
 
 
