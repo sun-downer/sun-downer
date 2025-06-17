@@ -1,8 +1,9 @@
 <p align="center">
-^_^
+for info, i dont play DoD but i like it
 </p>
 
-![1000007850](https://github.com/user-attachments/assets/74821c77-ab3d-43e8-89e0-9ac9abcd5401)
+![1000008090](https://github.com/user-attachments/assets/ff5439d6-1c78-4e03-bc45-2c4b8bc70b2f)
+
 
 
 
