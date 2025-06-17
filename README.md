@@ -3,7 +3,7 @@
 </p>
 
 <p align="center">
-  <img width="900" height="800" src="https://x.com/PopoN_MO4/status/1932888291747246244/photo/1">
+  <img width="900" height="800" src="https://github.com/user-attachments/assets/8023e0c1-1605-4fa3-a35c-a2aee65dd0cc">
 </p>
 
 
