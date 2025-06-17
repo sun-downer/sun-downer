@@ -1,9 +1,9 @@
 <p align="center">
-(⁠☆⁠▽⁠☆⁠)
+cr: @PopoN_MO4 in X/Twitter
 </p>
 
 <p align="center">
-  <img width="700" height="500" src="https://github.com/user-attachments/assets/8023e0c1-1605-4fa3-a35c-a2aee65dd0cc">
+  <img width="600" height="500" src="https://github.com/user-attachments/assets/8023e0c1-1605-4fa3-a35c-a2aee65dd0cc">
 </p>
 
 
