@@ -24,7 +24,7 @@ https://ritualfrenzy.atabook.org/
 @bxmmer_land on roblox.
 </p>
 <p align="center">
-basketoftulips on discord.
+acidbatteries on discord.
 </p>
 
 
