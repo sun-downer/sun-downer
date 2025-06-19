@@ -1,10 +1,4 @@
-<p align="center">
-cr: @PopoN_MO4 in X/Twitter
-</p>
-
-<p align="center">
-  <img width="600" height="500" src="https://github.com/user-attachments/assets/8023e0c1-1605-4fa3-a35c-a2aee65dd0cc">
-</p>
+![1000008242](https://github.com/user-attachments/assets/a9f98ff1-f7e3-41d9-8398-be71c7651fed)
 
 
 
