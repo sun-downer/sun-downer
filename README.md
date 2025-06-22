@@ -13,6 +13,9 @@ https://glowingstars.straw.page/
 <p align="center">
 https://ritualfrenzy.atabook.org/
 </p>
+<p align="center">
+https://guns.lol/acidicbatteries
+</p>
 
 <p align="center">
 @bxmmer_land on roblox.
