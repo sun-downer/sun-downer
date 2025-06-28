@@ -1,16 +1,15 @@
 
 
 https://github.com/user-attachments/assets/7b5c7b92-74d3-465e-ad73-16e63bcb9927
-
-
-
-
-
 <p align="center">
 cr: @maretulu92 on tiktok
 </p>
 
-
+════════════════════════════════════
+✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ . 　
+︶⊹︶︶୨୧︶︶⊹︶︶⊹︶︶୨୧︶︶⊹︶︶⊹︶︶୨୧︶︶⊹︶︶⊹════════════════════════════════════
+✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ . 　
+︶⊹︶︶୨୧︶︶⊹︶︶⊹︶︶୨୧︶︶⊹︶︶⊹︶︶୨୧︶︶⊹︶︶⊹
 <p align="center">
 https://glowingstars.straw.page/
 </p>
