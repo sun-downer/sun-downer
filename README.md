@@ -5,7 +5,7 @@ https://github.com/user-attachments/assets/7b5c7b92-74d3-465e-ad73-16e63bcb9927
 cr: @maretulu92 on tiktok
 </p>
 
-﹒⭒﹒⭒﹒⭒﹒﹒⭒﹒⭒﹒⭒﹒﹒⭒﹒⭒﹒⭒﹒﹒⭒﹒⭒﹒⭒﹒﹒⭒﹒⭒﹒⭒﹒﹒⭒﹒⭒﹒⭒﹒
+﹒⭒﹒⭒﹒⭒﹒﹒⭒﹒⭒﹒⭒﹒﹒⭒﹒⭒﹒⭒﹒﹒⭒﹒⭒﹒⭒﹒﹒⭒﹒⭒﹒⭒﹒﹒⭒﹒⭒﹒⭒﹒﹒⭒﹒⭒﹒⭒﹒
 <p align="center">
 https://glowingstars.straw.page/
 </p>
