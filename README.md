@@ -22,7 +22,7 @@ cr: @maretulu92 on tiktok
 ﴾ @bxmmer_land on roblox. ﴿‏
 </p>
 <p align="center">
-  ﴾ ‏acidbatteries on discord. ﴿‏
+﴾ acidbatteries on discord. ﴿
 </p>
 
 
