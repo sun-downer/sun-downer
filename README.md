@@ -19,10 +19,10 @@ cr: @maretulu92 on tiktok
 </p>
 
 <p align="center">
-﴾ @bxmmer_land on roblox. ﴿‏
+@bxmmer_land on roblox.‏
 </p>
 <p align="center">
-﴾ acidbatteries on discord. ﴿
+acidbatteries on discord.
 </p>
 
 
