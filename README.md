@@ -1,9 +1,5 @@
+![1000010315](https://github.com/user-attachments/assets/2c290ad3-35ea-4274-b0a5-514aa3ee4ed5)  i do not support Wilbur Soot's actions.
 
-
-https://github.com/user-attachments/assets/7b5c7b92-74d3-465e-ad73-16e63bcb9927
-<p align="center">
-cr: @maretulu92 on tiktok
-</p>
 
 <p align="center">
 ﹒⭒﹒⭒﹒⭒﹒﹒⭒﹒⭒﹒⭒﹒﹒⭒﹒⭒﹒⭒﹒﹒⭒﹒⭒﹒⭒﹒﹒⭒﹒⭒﹒⭒﹒﹒⭒﹒⭒﹒⭒﹒﹒⭒﹒⭒﹒
