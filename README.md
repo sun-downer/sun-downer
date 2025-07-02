@@ -7,15 +7,10 @@ cr: @maretulu92 on tiktok
 
 <p align="center">
 ﹒⭒﹒⭒﹒⭒﹒﹒⭒﹒⭒﹒⭒﹒﹒⭒﹒⭒﹒⭒﹒﹒⭒﹒⭒﹒⭒﹒﹒⭒﹒⭒﹒⭒﹒﹒⭒﹒⭒﹒⭒﹒﹒⭒﹒⭒﹒
-</p>
+
+
 <p align="center">
-https://glowingstars.straw.page/
-</p>
-<p align="center">
-https://ritualfrenzy.atabook.org/
-</p>
-<p align="center">
-https://guns.lol/acidicbatteries
+check out my dump strawp, it has some of my art : https://otakurave.straw.page/
 </p>
 
 <p align="center">
