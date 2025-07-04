@@ -5,10 +5,10 @@ WARNING MY GUNS.LOL HAS A PHOTOSENSITIVE/EYESTRAINING BG
 check out my dump strawp, it has some of my art : https://otakurave.straw.page/
 </p>
 
-<p align="center">
+<p align="right">
 @bxmmer_land on roblox.‏
 </p>
-<p align="center">
+<p align="right">
 acidbatteries on discord.
 </p>
 
