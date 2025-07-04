@@ -1,4 +1,5 @@
-![1000010315](https://github.com/user-attachments/assets/2c290ad3-35ea-4274-b0a5-514aa3ee4ed5)  i do not support Wilbur Soot's actions.
+![1000010411](https://github.com/user-attachments/assets/d256e9b2-35c9-48a6-a7d5-996cc4979ca6)
+
 
 
 <p align="center">
