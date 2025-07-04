@@ -1,8 +1,4 @@
 ![1000010555](https://github.com/user-attachments/assets/ff212ed6-accc-47fa-993c-90837598cfb7)
-
-
-
-
 nah ah ah
 
 
